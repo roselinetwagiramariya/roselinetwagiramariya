@@ -12,12 +12,12 @@ I am also reading Octabia Butler has ever written. I have read almost everything
   3. I am also really good at qualitative data analysis, focus groups (planning, executing, data collection/analysis and reporting).
   4. I have a research background, both collegiate and professional, and have been involved in M&E projects in some capacity since 2010.
     
-- 📫 How to reach me: Email is your best bet! roseline.twagiramariya@gmail.com.
+- 📫 How to reach me: Email is your best bet! roseline.twagiramariya@gmail.com. 
 
 - 😄 Pronouns: She/Her!
   
 - ⚡ Fun fact: I love hiking with my 2 dogs - Leo (a belgian malinois) and Jack Jack (a hound mix/mystery)!
-  Both are rescues from Rwanda that loved me enough to let me move them back to the U.S. with me! 
+  Both are rescues from Rwanda that liked me enough to let me move them back to the U.S. with me! 
 
 <!---
 roselinetwagiramariya/roselinetwagiramariya is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
