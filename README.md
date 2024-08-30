@@ -7,7 +7,7 @@ person so I just like knowing things for the sake of knowing them.
 I am also reading Octabia Butler has ever written. I have read almost everything by her expect Kindred which may surprise some because Kindred is often the novel that others start by.
   
 - 💞️ I’m looking to collaborate on ... a wide variety of data analysis and collection projects. So that means that:  
-  1. I can handle end-to-end data projects from cleaning to visualizing to reporting.
+  1. I can handle end-to-end data projects from cleaning to visualizing to reporting (data entry too!).
   2. I have strong writing skills so I can write technical reports that follow any outline given to me.
   3. I am also really good at qualitative data analysis, focus groups (planning, executing, data collection/analysis and reporting).
   4. I have a research background, both collegiate and professional, and have been involved in M&E projects in some capacity since 2010.
