@@ -4,7 +4,7 @@
 person so I just like knowing things for the sake of knowing them. 
 
 - 🌱 I’m currently learning ... The Murderbot Diaries by Martha Wells, I'm on the last book in a series of 5 called the Network Effect and it's about a jailbroken security robot that is so relatable.
-I am also reading Octabia Butler has ever written. I have read almost everything by her expect Kindred which may surprise some because Kindred is often the novel that others start by.
+I am also reading Octavia Butler has ever written. I have read almost everything by her expect Kindred which may surprise some because Kindred is often the novel that others start by.
   
 - 💞️ I’m looking to collaborate on ... a wide variety of data analysis and collection projects. So that means that:  
   1. I can handle end-to-end data projects from cleaning to visualizing to reporting (data entry too!). I can work in PowerBi, Tableau, Sisense and soon, Metabase.
