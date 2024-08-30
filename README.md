@@ -12,7 +12,7 @@ I am also reading Octabia Butler has ever written. I have read almost everything
   3. I am also really good at qualitative data analysis, focus groups (planning, executing, data collection/analysis and reporting).
   4. I have a research background, both collegiate and professional, and have been involved in M&E projects in some capacity since 2010.
     
-- 📫 How to reach me: Email is your best bet! roseline.twagiramariya@gmail.com. 
+- 📫 How to reach me: Email is your best bet! I'm available at roseline.twagiramariya@gmail.com and you can check out my Linkedin [here](https://www.linkedin.com/in/roselinetwagiramariya/).
 
 - 😄 Pronouns: She/Her!
   
